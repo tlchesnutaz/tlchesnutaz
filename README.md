@@ -2,7 +2,7 @@
 
 I’m currently working on ... the job search <img src="https://github.com/tlchesnutaz/tlchesnutaz/assets/116018538/eb10b282-caa4-44eb-95e4-429526cddc7f" width="25" />
 
-I’m currently learning ... AWS
+I’m currently learning ... a little of everything... so much to learn, so little time!
 
 I’m looking to collaborate on ... anything!
 
